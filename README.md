@@ -1,1 +1,2 @@
- Firezone Modded What it has silent aim (aim for the head)  speedboost  faster ais  anti kick esp currently working on the apk
+this apk is only for fun not used to farm anyone pls use the apk nicely.
+thanks - ymfw
